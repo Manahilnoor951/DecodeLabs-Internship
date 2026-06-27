@@ -238,8 +238,8 @@ Cyber Security Intern
 
 DecodeLabs Industrial Training Program (Batch 2026)
 
-* 🐙 GitHub: https://github.com/your-username
-* 💼 LinkedIn: https://linkedin.com/in/your-profile
+* 🐙 GitHub: https://github.com/Manahilnoor951/
+* 💼 LinkedIn: linkedin.com/in/manahil-noor-2baaa0333
 
 ---
 
