@@ -8,7 +8,7 @@
 🔐 Password Security • 🔒 Encryption • 🛡️ Phishing Awareness
 </p>
 
----
+----
 
 # 📋 Overview
 
